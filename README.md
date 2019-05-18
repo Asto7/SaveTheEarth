@@ -1,2 +1,2 @@
 # SaveTheEarth
-Ironman kills thanos to bring everyone back.
+Ironman kills thanos to bring everyone back.Inreturn he dies.
